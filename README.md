@@ -1,11 +1,12 @@
 # erbim.github.io
-Irvin Augustine A. Dait
----
-**Welcome to Irvin's Website**
 
-`9-Brebeuf`
----
+![alt text](https://upload.wikimedia.org/wikipedia/commons/4/44/St_jude_naga_city.JPG)
 
+## **St. Jude Thaddeus Parish**
+*St. Jude Parish located at Alemda Hwy. Near St. Jude Subd.*
 
 
-
+| `Sun` | `Mon` | `Tue` | `Wed` | `Thu` | `Fri` | `Sat` |
+| --- | --- | --- | --- | --- | --- | --- |
+|   6:00 AM - 7:00 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |
+| 8:00 AM - 9:00 AM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM |
