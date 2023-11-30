@@ -10,3 +10,23 @@
 | --- | --- | --- | --- | --- | --- | --- |
 |   6:00 AM - 7:00 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |   6:30 AM - 7:30 AM   |
 | 8:00 AM - 9:00 AM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM |
+
+
+***
+
+## Archdiocesan Shrine and Parish of St. Jude Thaddeus Mass Schedule
+**Church Information**
+
+
+### Address:
+*St. Jude Village, Concepcion Grande, Naga City, Camarines Sur*
+
+
+
+### `Telephone Number`*(For Inquiries)*: **0946 592 4709**
+
+`Priest`: 
+confession:
+links: Facebook Page   E-mail
+additional info:
+last update: Thu Apr 13, 2023 8:47PM
