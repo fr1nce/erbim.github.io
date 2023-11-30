@@ -26,7 +26,12 @@
 ### `Telephone Number`*(For Inquiries)*: **0946 592 4709**
 
 `Priest`: 
-confession:
-links: Facebook Page   E-mail
+
+`Confessions`:
+
+
+**Links**:  (URL)
+
+**E-mail Address
 additional info:
-last update: Thu Apr 13, 2023 8:47PM
+Last Update: Thu Apr 13, 2023 8:47PM
