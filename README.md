@@ -1,5 +1,5 @@
 # erbim.github.io
-
+***
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/4/44/St_jude_naga_city.JPG)
 
 ## **St. Jude Thaddeus Parish**
@@ -29,12 +29,29 @@
 
 `Confessions`:
 
+---
 
-**Links**:  (URL)
+**Links**: 
 
-**E-mail Address**: 
+Facebook:  *https://www.facebook.com/stjudenaga/*
 
+**E-mail Address**: *stjudethaddeusp@gmail.com*
+
+## **Websites and Social links**
+
+*http://www.caceres-naga.org/*
+
+---
 
 **Additional Info:**
 
 `Last Update:` *Thu Apr 13, 2023 8:47PM*
+
+***
+
+## Parish Gallery
+
+
+
+
+
