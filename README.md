@@ -50,20 +50,19 @@
 
 **Titular** - *St. Jude Thaddeus*
 
-*Source: https://www.parishph.com/2022/07/archdiocesan-shrine-and-parish-of-st-jude-thaddeus.html*
+*Source: [https://www.parishph.com/2022/07/archdiocesan-shrine-and-parish-of-st-jude-thaddeus.html](https://www.parishph.com/2022/07/archdiocesan-shrine-and-parish-of-st-jude-thaddeus.html)*
 
 ---
 
  **Links**: 
 
-Facebook:  *https://www.facebook.com/stjudenaga/*
+Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stjudenaga/)
 
-**E-mail Address**: *stjudethaddeusp@gmail.com*
+**E-mail Address**: [stjudethaddeusp@gmail.com](stjudethaddeusp@gmail.com)
 
  ## **Websites and Social links**
 
-*http://www.caceres-naga.org/*
-
+*[http://www.caceres-naga.org/](http://www.caceres-naga.org/)*
 ---
 
  **Additional Info:**
