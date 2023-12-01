@@ -90,7 +90,7 @@ Facebook:  *https://www.facebook.com/stjudenaga/*
 
 
 ---
-## St. Jude Thaddeus
+> ## St. Jude Thaddeus
 ![alt text](https://i.ytimg.com/vi/cuomhYIFf0U/maxresdefault.jpg
 ) 
 
@@ -105,4 +105,7 @@ Facebook:  *https://www.facebook.com/stjudenaga/*
   
    > *He was rather the Patron Saint of Hope, or the "Impossible"*
 
+*I still remember the first day of our parish service.. Right after our hardwork of cleaning, We went ahead and reflect about the experience we had.. And on top of that, a sister discussed who St. Jude was, and I remember her saying that people come here to the parish so that they can overcome the `challenges` that they are currently facing..*
+
+*It is him, St. Jude of Thaddeus who helps us overcome our hardships in life.. It is he who we come to when we need help. So that in the end, it is he who helps us get back up..*
 
