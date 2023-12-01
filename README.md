@@ -58,7 +58,7 @@
 
 Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stjudenaga/)
 
-**E-mail Address**: [stjudethaddeusp@gmail.com](stjudethaddeusp@gmail.com)
+**E-mail Address**: *stjudethaddeusp@gmail.com*
 
  **Websites and Social links**
 
