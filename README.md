@@ -80,10 +80,12 @@ Facebook:  *https://www.facebook.com/stjudenaga/*
 
 ## The St. Jude Thaddeus Parish
 [![erbim.github.io](https://img.youtube.com/vi/ffU-w7QWGZY/0.jpg)](https://www.youtube.com/watch?v=ffU-w7QWGZY)
- #### *Click on image to play the Video URL*
+ 
+  *Click on image to play the Video URL*
+
  `Video by April May Baldemor`
 
- ## **HISTORY**
+ **HISTORY**
 > **Parish History**
  
 *Archdiocesan Shrine and Parish of Saint Jude Thaddeus of the Roman Catholic Archdiocese of Caceres was established on June 28, 1997. It is located at Brgy.  - Concpecion Grande, Naga City, Province of Camarines Sur. The Parish Fiesta is celebrated every 28th day of October*
@@ -100,6 +102,8 @@ Facebook:  *https://www.facebook.com/stjudenaga/*
 
 
  ### **What was St. Jude the patron saint of ??**
+
+
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4f/Anthonis_van_Dyck%2C_%2C_Kunsthistorisches_Museum_Wien%2C_Gem%C3%A4ldegalerie_-_Apostel_Judas_Thadd%C3%A4us_-_GG_6809_-_Kunsthistorisches_Museum.jpg/220px-Anthonis_van_Dyck%2C_%2C_Kunsthistorisches_Museum_Wien%2C_Gem%C3%A4ldegalerie_-_Apostel_Judas_Thadd%C3%A4us_-_GG_6809_-_Kunsthistorisches_Museum.jpg
    ) 
   
