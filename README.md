@@ -96,7 +96,7 @@ Facebook:  *https://www.facebook.com/stjudenaga/*
 ![alt text](https://i.ytimg.com/vi/cuomhYIFf0U/maxresdefault.jpg
 ) 
 
-### **Jude the Apostle** *(Saint)*
+ **Jude the Apostle** *(Saint)*
 
 *Jude was one of the Twelve Apostles of Jesus according to the New Testament. He is generally identified as Thaddeus and is also variously called Judas and is considered as the founding father and the first Catholicos-Patriarch of the Armenian Apostolic Church. He is sometimes identified with Jude, the brother of Jesus, but is clearly distinguished from Judas Iscariot, the disciple who betrayed Jesus prior to his crucifixion. Catholic writer Michal Hunt suggests that Judas Thaddaeus became known as Jude after early translators of the New Testament from Greek into English sought to distinguish him from Judas Iscariot and subsequently abbreviated his forename. Most versions of the New Testament in languages other than English and French refer to Judas and Jude by the same name.*
 
