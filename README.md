@@ -3,7 +3,7 @@
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/4/44/St_jude_naga_city.JPG)
 
 ## **St. Jude Thaddeus Parish**
-*St. Jude Parish located at Alemda Hwy. Near St. Jude Subd.*
+*St. Jude Parish located at Almeda Hwy. Near St. Jude Subd.*
 
 
 | `Sun` | `Mon` | `Tue` | `Wed` | `Thu` | `Fri` | `Sat` |
