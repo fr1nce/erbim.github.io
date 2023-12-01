@@ -60,7 +60,7 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
 **E-mail Address**: [stjudethaddeusp@gmail.com](stjudethaddeusp@gmail.com)
 
- ## **Websites and Social links**
+ **Websites and Social links**
 
 *[http://www.caceres-naga.org/](http://www.caceres-naga.org/)*
 ---
