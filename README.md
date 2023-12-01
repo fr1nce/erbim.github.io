@@ -52,5 +52,4 @@ Facebook:  *https://www.facebook.com/stjudenaga/*
 ## Parish Gallery
 
 ***
-<iframe src="[https://www.youtube.com/watch?si=ZgzkLwDC_Pm2xX1x&fbclid=IwAR0vn7dRl4eMmq9OCOMz63fRFVvobkdOBTfmkQbFqVa0Q6nijGvbyNYjlKc&v=ffU-w7QWGZY&feature=youtu.be]" frameborder="0" allowfullscreen></iframe>
-```
+[![Alt text](https://img.youtube.com/vi/https://www.youtube.com/watch?v=ffU-w7QWGZY/0.jpg)]
