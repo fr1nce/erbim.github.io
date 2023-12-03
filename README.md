@@ -73,6 +73,32 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
 > ## Parish Gallery
 
+>**Look:** *The St. Jude Church as seen from outside.*
+
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403404019_632527422422061_3342247115026804191_n.jpg?stp=dst-jpg_p403x403&_nc_cat=105&ccb=1-7&_nc_sid=510075&_nc_eui2=AeGERsfLXeV72jWyLacSCeK5_3WiVwlJCw__daJXCUkLD4piF0PRVQWLQgiqHRkjo8huLurfRWSpIIftOgohcT64&_nc_ohc=aKxGztzsJmUAX9ReSaT&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdTdwhS8Xo_pAG7Ar6a9keUTOBy11syzgcT-RanVibiwyw&oe=6593CCEB)
+
+>**Look:** *St. Jude Thaddeus Church seen from the staircase entrance.*
+
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403403989_886362762693247_6119081575896694777_n.jpg?stp=dst-jpg_p403x403&_nc_cat=109&ccb=1-7&_nc_sid=510075&_nc_eui2=AeEVFpOHcqqXPhJelbOzgvYMTuR0Cyj4325O5HQLKPjfbqv23KbVd3haDBezQMJtyBcRhCTC6OzjSp718qtAXKZb&_nc_ohc=hI3lppYHrs0AX_5OL-h&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdSB_lfRFd4WiTLHHxS6lMluQluElPbV0LtRs4b8DZ4-Qg&oe=6593EF76)
+
+>**Look:** *The image below shows the Shrine of St. Jude just outside the church.*
+
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/370144810_660181816266873_2605214686371753108_n.jpg?stp=dst-jpg_p403x403&_nc_cat=109&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHQa57CpLTllkihlVn2iJQ7ElweKGcWfkUSXB4oZxZ-Rc_afhv_DWqJvTMj0UuOX0ZSbIyWqX4itMuqG9LbLKab&_nc_ohc=eTIA2JtUNlUAX965vck&_nc_oc=AQkk0yZZoHLg9qyQ2H9d3VACSwahTrMO6ujhz6BJPJJVlhGwAsg4JtZHIL4BcKUZg2TpffLrrxQCAGySIhlG1UJX&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdSt9g5dMtH79g3rjgaxekBeu7kYzmVR938jbpD4i830og&oe=6593D603)
+
+>**Look:** *The view of the altar*
+
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/393895549_734895372008611_6548804495980432070_n.jpg?stp=dst-jpg_p403x403&_nc_cat=104&ccb=1-7&_nc_sid=510075&_nc_eui2=AeFhSF0yXV_l-RbcTJyMNA1S1AGGryOGqhfUAYavI4aqF_nYhLxVr7N076qEMSwdi-xRkmuJJkZSblgvuqLQwdgC&_nc_ohc=ou2MwKb0epEAX8Vm8DN&_nc_oc=AQkZszD7vA9AhL0pOIYmU-0fo-YuXAndS8nO6A4U2to5BR4-oFOOZjoJlzgv4iiH3CIZjXOjlDGjYaeACFQ4WKBc&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdRl6geckiEhpf2ap8ThoODHnAnrRnheF4Aj-ViUI302kQ&oe=6593D6E2)
+
+>**Look:** *The church as seen from the eastern-entrance*
+
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403418172_1378132199800528_7652041399142850084_n.jpg?stp=dst-jpg_p403x403&_nc_cat=110&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHAtjpL06Tkh73UxGWaa3gQuTqOre7RqlK5Oo6t7tGqUm9NHkllBhK5-cvH_eGnGpQ4q01wR1pRNSAHJ3ylWI0S&_nc_ohc=OUkSTs1V4uYAX8nMUnn&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdROyhNn5OvWm49iRsxM9MqTrF1OFHVOSM7Lc9_L-3zK-g&oe=6593D70D)
+
+>**Look:** *The church as seen from the western-entrance*
+
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403405971_1992886427751614_6464511101388994655_n.jpg?stp=dst-jpg_p403x403&_nc_cat=107&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHjsfvdweCnYl8SU5NG1jStpS1YeOQm2TKlLVh45CbZMr5teAnS4LAopy1scniCHQCLyZPIN6L7sFlkfOISDqcS&_nc_ohc=qLvIQmmRcAkAX9g3bPB&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdQ-Yysv0v3wz8ah_qptg0BenuZJk-2_oIo34NjqqSroeA&oe=6593E629)
+
+*Photos Taken by:* `Irvin Dait`
+
 ***
 
 
