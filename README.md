@@ -138,3 +138,14 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
 *It is him, St. Jude of Thaddeus who helps us overcome our hardships in life.. It is he who we come to when we need help. So that in the end, it is he who helps us get back up..*
 
+
+
+
+
+
+<p align="center">
+ --END--
+</p>
+
+***
+
