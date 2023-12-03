@@ -144,7 +144,7 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
 
 <p align="center">
- --END--
+ --THANK YOU FOR TAKING YOUR TIME READING THIS WEBSITE! GOBLESS!--
 </p>
 
 ***
