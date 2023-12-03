@@ -67,7 +67,7 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
  **Additional Info:**
 
-`Last Update:` *Thu Nov 30, 2023 3:00PM*
+`Last Update:` *Thu Dec 3, 2023 7:40PM*
 
 ***
 
