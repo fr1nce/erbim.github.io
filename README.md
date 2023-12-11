@@ -67,6 +67,8 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
  **Additional Info:**
 
+**Religious Organizations** : [(https://www.facebook.com/st.judethaddeusasm/) *(St. Jude Thaddeus Parish and Shrine Altar Servers Ministry )
+
 `Last Update:` *Thu Dec 3, 2023 7:40PM*
 
 ***
