@@ -67,7 +67,7 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
  **Additional Info:**
 
-**Religious Organizations** : [(https://www.facebook.com/st.judethaddeusasm/) *(St. Jude Thaddeus Parish and Shrine Altar Servers Ministry )
+**Religious Organizations** : ![https://www.facebook.com/st.judethaddeusasm/](https://www.facebook.com/st.judethaddeusasm/)
 
 `Last Update:` *Thu Dec 3, 2023 7:40PM*
 
@@ -93,11 +93,11 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
 >**Look:** *The church as seen from the eastern-entrance*
 
-![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403418172_1378132199800528_7652041399142850084_n.jpg?stp=dst-jpg_p403x403&_nc_cat=110&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHAtjpL06Tkh73UxGWaa3gQuTqOre7RqlK5Oo6t7tGqUm9NHkllBhK5-cvH_eGnGpQ4q01wR1pRNSAHJ3ylWI0S&_nc_ohc=OUkSTs1V4uYAX8nMUnn&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdROyhNn5OvWm49iRsxM9MqTrF1OFHVOSM7Lc9_L-3zK-g&oe=6593D70D)
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403418172_1378132199800528_7652041399142850084_n.jpg?stp=dst-jpg_p403x403&_nc_cat=110&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHAtjpL06Tkh73UxGWaa3gQuTqOre7RqlK5Oo6t7tGqUm9NHkllBhK5-cvH_eGnGpQ4q01wR1pRNSAHJ3ylWI0S&_nc_ohc=ibo2ZcNoLUQAX-d_B8s&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdROwYiwHltkkyUBkfKygXJA2E9NQSyjor5m_untx4G63Q&oe=65C0398D)
 
 >**Look:** *The church as seen from the western-entrance*
 
-![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403405971_1992886427751614_6464511101388994655_n.jpg?stp=dst-jpg_p403x403&_nc_cat=107&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHjsfvdweCnYl8SU5NG1jStpS1YeOQm2TKlLVh45CbZMr5teAnS4LAopy1scniCHQCLyZPIN6L7sFlkfOISDqcS&_nc_ohc=qLvIQmmRcAkAX9g3bPB&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdQ-Yysv0v3wz8ah_qptg0BenuZJk-2_oIo34NjqqSroeA&oe=6593E629)
+![alt text](https://scontent.xx.fbcdn.net/v/t1.15752-9/403405971_1992886427751614_6464511101388994655_n.jpg?stp=dst-jpg_p403x403&_nc_cat=107&ccb=1-7&_nc_sid=510075&_nc_eui2=AeHjsfvdweCnYl8SU5NG1jStpS1YeOQm2TKlLVh45CbZMr5teAnS4LAopy1scniCHQCLyZPIN6L7sFlkfOISDqcS&_nc_ohc=RpDCb3bSN5sAX8iGCdN&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdQg1k-B6GG_Hy3o23BbjejQNekl1JtQu95fkzFVK3ePSQ&oe=65C048A9)
 
 *Photos Taken by:* `Irvin Dait`
 
