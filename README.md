@@ -12,6 +12,24 @@
 | 8:00 AM - 9:00 AM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM | 6:00 PM - 7:00 PM |
 
 
+> ## **CONFESSION SCHEDULE**
+
+
+`Weekdays`
+
+**Every Friday of the Month**
+
+*5:00pm and 6:30pm*
+
+**Every Thursday**
+
+*5:00pm and 6:30pm*
+
+**Sunday**
+
+*10:30 AM and 5:00PM*
+
+
 ***
 
 ## Archdiocesan Shrine and Parish of St. Jude Thaddeus Mass Schedule
