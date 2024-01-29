@@ -3,6 +3,8 @@
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/4/44/St_jude_naga_city.JPG)
 
 > ## **by Irvin Augustine A. Dait**
+
+
 ## **St. Jude Thaddeus Parish**
 *St. Jude Parish located at Almeda Hwy. Near St. Jude Subd.*
 
