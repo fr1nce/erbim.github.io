@@ -2,6 +2,7 @@
 ***
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/4/44/St_jude_naga_city.JPG)
 
+> ## **by Irvin Augustine A. Dait**
 ## **St. Jude Thaddeus Parish**
 *St. Jude Parish located at Almeda Hwy. Near St. Jude Subd.*
 
@@ -56,7 +57,11 @@
 
 **Parish Priest** - `Fr. Wilmer Joseph S. Tria`
 
-**Parochial Vicars** - *Fr. Rex Luis L. Hidalgo; Fr. Francis A. Tordilla*
+**Parochial Vicars** - 
+
+*Fr. Rex Luis L. Hidalgo*
+
+*Fr. Francis A. Tordilla*
 
 **Former Priests** - `no record available`
 
@@ -67,8 +72,6 @@
 **Patron Saint** - *St. Jude Thaddeus*
 
 **Titular** - *St. Jude Thaddeus*
-
-*Source: [https://www.parishph.com/2022/07/archdiocesan-shrine-and-parish-of-st-jude-thaddeus.html](https://www.parishph.com/2022/07/archdiocesan-shrine-and-parish-of-st-jude-thaddeus.html)*
 
 ---
 
@@ -87,7 +90,7 @@ Facebook:  [(https://www.facebook.com/stjudenaga/](https://www.facebook.com/stju
 
 **Religious Organizations** : ![https://www.facebook.com/st.judethaddeusasm/](https://www.facebook.com/st.judethaddeusasm/)
 
-`Last Update:` *Thu Dec 3, 2023 7:40PM*
+`Last Update:` *Thu Jan 29, 2024 2:25PM*
 
 ***
 
