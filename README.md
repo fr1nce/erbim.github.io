@@ -57,7 +57,7 @@
 
 **Type** - *Parish*
 
-**Parish Priest** - `Fr. Wilmer Joseph S. Tria`
+**Parish Priest** - `Fr. Glenn Ruiz`
 
 **Parochial Vicars** - 
 
@@ -65,7 +65,7 @@
 
 *Fr. Francis A. Tordilla*
 
-**Former Priests** - `no record available`
+**Former Priests** - `Fr. Wilmer Joseph S. Tria`
 
 **Date Established** - *June 28, 1997*
 
