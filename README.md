@@ -57,15 +57,21 @@
 
 **Type** - *Parish*
 
-**Parish Priest** - `Fr. Glenn Ruiz`
+**Parish Priest** - `Fr. Glenn C. Ruiz`
 
-**Parochial Vicars** - 
+**Parochial Vicar** - `Fr. Larry Grando N. Mijares`
+
+**Parish Secretary** - `Ms. Melody Ojeda`
+
+**Former Priests** - 
+
+*Fr. Wilmer Joseph S. Tria*
+
+**Former Parochial Vicars** - 
 
 *Fr. Rex Luis L. Hidalgo*
 
 *Fr. Francis A. Tordilla*
-
-**Former Priests** - `Fr. Wilmer Joseph S. Tria`
 
 **Date Established** - *June 28, 1997*
 
